@@ -1,0 +1,2 @@
+# SEGA GENESIS
+La Mega Drive, conocida en diversos territorios de América como Genesis, es una videoconsola de sobremesa de 16 bits desarrollada por Sega Enterprises, Ltd. La Mega Drive fue la tercera consola de Sega y la sucesora de la Master System.
